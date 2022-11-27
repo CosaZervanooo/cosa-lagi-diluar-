@@ -1,0 +1,2 @@
+# cosa-lagi-diluar-
+selamat 
